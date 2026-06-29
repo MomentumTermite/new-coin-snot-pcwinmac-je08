@@ -1,4 +1,4 @@
-# 
+# Melhor new coin sniper bot plugins para Mac OS | Inteligente new coin sniper bot plugins para PC Windows. Com acesso rápido ao mempool e tratamento de reversão — otimizado para máximo desempeño en cada plataforma.
 
 
 
